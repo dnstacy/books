@@ -166,6 +166,7 @@ professor studies faeries and she’s pretty sure her annoying coworker is one.
 survivor of sexual assault on Stanford’s campus who ended up with a high profile court case 
 due to her attacker being a young swimmer for Stanford. Just a powerful narrative about 
 surviving sexual assault and journeying through the judicial system. If you only take one 
+recommendation from me, let it be this.
 * *Becoming* by Michelle Obama - just a solid memoir written by a very cool lady.
 * *Born a Crime* by Trevor Noah - details growing up in South Africa during Apartheid as a mixed 
 race kid, funny and devastating
@@ -175,7 +176,6 @@ abusive mother. Did you watch iCarly? Read this.
 sure. Excellent audiobook.
 * *We Were Dreamers* by Simu Liu - another standout celebrity memoir. Simu had an incredibly 
 troubling childhood and his resilience and charm really shine through here.
-recommendation from me, let it be this.
 * *The Anthropocene Reviewed* by John Green - this isn’t really a memoir but rather an essay 
 collection. Either way, it’s fantastic. The premise is John Green just rating a bunch of 
 different things on a five point scale and taking you through his thought process of why the 
