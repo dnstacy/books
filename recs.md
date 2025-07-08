@@ -60,6 +60,15 @@ lives.
 * *Legendborn* by Tracy Deonn - YA fantasy with a magic system around Arthurian legend, takes 
 place at UNC Chapel Hill (shout out), and deals with heavy topics like grief and racism while 
 still being a romp of a story.
+* *The Lightning Thief* by Rick Riordan - middle grade fantasy that if you have not read by 
+now, then what are you waiting for? Percy Jackson is always getting into trouble despite 
+trying his best. Once he is 12 years old, he finds out that he is actually a demigod and the 
+events that keep getting him into trouble are related to his godly parentage. This book kicks 
+off the series and is just a romp. Book 3 and book 5 are my favorites.
+* *The Lost Hero* by Rick Riordan - middle grade fantasy companion series to *The Lightning 
+Thief* series. Definitely read *The Lightning Thief* before jumping into this bad boy. I 
+think this book is actually the worst in the series, and I still really enjoyed it. Book 3 and
+book 4 are the best in the series imo.
 
 ### Sci-Fi:
 * *Hitchhiker’s Guide to the Galaxy* by Douglas Adams - the prototypical silly and weird sci-fi 
@@ -97,7 +106,8 @@ predecessor’s consciousness and memories to assist her in her job, but it’s 
 and suddenly goes haywire.
 * *The Hunger Games* by Suzanne Collins - if you haven’t read this book yet, then you’re missing 
 out on a classic dystopian. It’s way more than a love triangle and a chosen one trope, and the 
-deeply stratified and oppressive society is more similar to our own than is comfortable.
+deeply stratified and oppressive society is more similar to our own than is comfortable. It's 
+kind of crazy how this is YA.
 * *Parable of the Sower* by Octavia E. Butler - dystopian that was written in the 90s and starts 
 in 2024 and takes place across several years. Climate change is wreaking havoc and society is 
 incredibly stratified and violent. Our main protagonist suffers from hyperempathy, causing her 
